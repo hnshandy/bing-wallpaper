@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-03-31 | [Belted Galloway cows in Scotland (© JohnFScott/Getty Images)](https://cn.bing.com/th?id=OHR.BeltedGalloway_EN-US0423647307_UHD.jpg) 
+
 2022-03-29 | [Wisteria blooms at Kawachi Fuji Garden in Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)](https://cn.bing.com/th?id=OHR.Kawachi_EN-US0111381625_UHD.jpg) 
 
 2022-03-28 | [Ancient theater of Taormina in Sicily, Italy (© Antonino Bartuccio/eStock Photo)](https://cn.bing.com/th?id=OHR.TeatroAntico_EN-US9864647927_UHD.jpg) 
