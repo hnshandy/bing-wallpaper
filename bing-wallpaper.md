@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-04-21 | [Mute swan chicks shelter under mom's tail feathers, Massapequa Preserve, Long Island, New York (© Vicki Jauron/Getty Images)](https://cn.bing.com/th?id=OHR.MuteSwan_EN-US6400507861_UHD.jpg) 
+
 2022-04-20 | [Plitvice Lakes National Park, Croatia (© Janne Kahila/Getty Images)](https://cn.bing.com/th?id=OHR.PlitviceBoardwalk_EN-US6264296543_UHD.jpg) 
 
 2022-04-18 | [The blue eggs of an American robin in New Jersey (© Mira/Alamy)](https://cn.bing.com/th?id=OHR.RobinsEgg_EN-US5615411748_UHD.jpg) 
