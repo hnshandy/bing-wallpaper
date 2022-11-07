@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-08 | [Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg) 
+
 2022-11-07 | [Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_UHD.jpg) 
 
 2022-11-05 | [Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg) 
